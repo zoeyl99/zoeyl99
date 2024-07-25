@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning data analytics skills 
 - 💞️ I’m looking to collaborate on projects for beginners to sharpen my experience 
 - 📫 How to reach me zoeyle1807@gmail.com
-- 😄 Pronouns: she/her
+- 😄 Pronouns: devoted dog mom
 - ⚡ Fun fact: I can pick out a perfect watermelon every time
 
 <!---
